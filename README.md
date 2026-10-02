@@ -52,9 +52,9 @@ Professional website for MTA roleplay gaming server with user panel and shop sys
 
 ## Contact
 
-📧 Email: your.email@example.com  
-💬 Telegram: [@your_username](https://t.me/your_username)  
-🔗 LinkedIn: [Your Profile](https://linkedin.com/in/your_username)
+📧 Email: Hosinip2003@gmail.com
+
+
 
 ---
 
